@@ -2,3 +2,4 @@
 # Quiet-Shelf
 A detailed book about modernization of Library and information science in the age of Artificial intelligence 
 Dowload Here
+   read and preview here................ https://heyzine.com/flip-book/476a84bd5f.html
